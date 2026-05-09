@@ -1,0 +1,1 @@
+# resolution-week-6-hardware
